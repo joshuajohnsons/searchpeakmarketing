@@ -1,6 +1,6 @@
 # Search Peak Marketing - Expert SEO & Digital Marketing Services
 
-![Search Peak Marketing Logo](https://searchpeakmarketing.com/uploads/medium/f16de1d5b1c60b0890b8cf44bf1faf68_medium-1000x601.png)
+![Search Peak Marketing Logo](https://searchpeakmarketing.com/uploads/big/mainwhite.png)
 
 **Top SEO Agency in Sarasota & Bradenton | Expert Digital Marketing Services**
 
